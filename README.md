@@ -1,1 +1,1 @@
-My username un github is SEAbdul
+My username in github is SEAbdul
